@@ -1,0 +1,1 @@
+# StarPattern-Satu-Asterisk-Kiri
